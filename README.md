@@ -23,4 +23,4 @@
 在这个泛滥与噪音并存的网络环境中，我们提供的不是简单的视频，而是一个稳定、可靠的日本AV免费娱乐平台。如果你正在寻找一个值得长期收藏的高质量看片网站，请记住我们，每天来这里发现新的惊喜。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/ss36986/36985 ）</span>
